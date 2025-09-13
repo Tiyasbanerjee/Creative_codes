@@ -1,0 +1,1 @@
+# Finding-the-slope-and-graph-of-a-linear-function
